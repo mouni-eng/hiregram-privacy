@@ -66,6 +66,4 @@ The Site is not intended for individuals under the age of [[INSERT AGE]].
 CHANGES
 We may update this privacy policy from time to time in order to reflect, for example, changes to our practices or for other operational, legal or regulatory reasons.
 CONTACT US
-For more information about our privacy practices, if you have questions, or if you would like to make a complaint, please contact us by e-mail at mounirmohamed372@gmail.com or by mail using the details provided below:
-
-  New cairo, Ashrafya compound /13/2, new cairo, SU, 11835, Egypt
+For more information about our privacy practices, if you have questions, or if you would like to make a complaint, please contact us by e-mail at Info.hiregram@gmail.Com
